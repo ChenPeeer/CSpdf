@@ -1,5 +1,6 @@
 本资源仅供学习交流，请于24小时内删除。
 
+价格5元
 下载地址: [百度云](https://pan.baidu.com/s/15xrOMNem9F0LcVYW03L7hg )
 提取码: wkje
 
